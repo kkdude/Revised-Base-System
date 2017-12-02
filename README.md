@@ -2,8 +2,6 @@
 Proposing a new base system as the current base system is flawed in many ways. 
 According to some reddit users the current bases are defined as:
 
-0.5 - Physical contact, may include holding hands and kissing of other non-intimate areas such as cheeks
-
 1 - Kissing / Making out
 
 2 - Touching boobs
@@ -14,6 +12,8 @@ According to some reddit users the current bases are defined as:
 
 ### Proposed system
 This newer system will reduce the ambiguity and allow "bros" to communicate their adventures more precisely and with less effort.
+
+0.5 - Physical contact, may include holding hands and kissing of other non-intimate areas such as cheeks
 
 1 - Kissing (Lips)
 
