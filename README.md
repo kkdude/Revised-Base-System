@@ -29,4 +29,10 @@ This newer system will reduce the ambiguity and allow "bros" to communicate thei
 
 4 (Home base)- Sex (As it has always been)
 
+After this point it ceases being linear and splits off based on the individual/couple's preferences. Meaning they can have one, none or both of these bases covered
+
+5A - Anal sex (A for anal)
+
+5B - Period sex (B for blood)
+
 There can also be progressions of 0.25 between these bases if one partner does this but the other does not reciprocate.
